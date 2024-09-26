@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sheC0der
+- 👋 Hi, I’m Her Majesty Queen of Code, thee She Coder -but you can call me Innocencia Ndembera 
 - 👀 I’m interested in Software Engineering, Tech Advocacy and Empowering Women in Tech 
 - 🌱 I’m currently learning Cloud Computing, AI and Financial Technology Innovations
 - 💞️ I’m looking to collaborate on Mobile Apps, digital transformation initiatives, and building communities around Women in Tech
